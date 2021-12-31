@@ -1,2 +1,1 @@
-## Quantitative Research & Blockchain Initiatives Repositories
-
+## Quantitative Research & Blockchain Initiatives 
