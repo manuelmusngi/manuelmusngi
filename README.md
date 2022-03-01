@@ -1,1 +1,1 @@
-## Quantitative Research and DeFi Blockchain Initiatives 
+## Quantitative Research and Blockchain Initiatives 
