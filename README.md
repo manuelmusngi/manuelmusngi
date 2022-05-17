@@ -1,1 +1,1 @@
-## Quantitative Research && Digital Currency Initiatives 
+## Quantitative Research Initiatives 
